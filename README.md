@@ -8,7 +8,7 @@ Suwushi rigole plus fort que Kirin J Callinan |
 Psychokwak dit quelque chose de choquant |  
 Sucre Vannille à nettoyé sa chambre |
 L'inxterne parle de truc pour faire la guerre | 
-Leblanko ramène illicitement des articles des courses | 
+Le Blanko ramène illicitement des articles des courses | 
 Pigeon pète quelqu'un à l'affond |
 Laurent et Sucre Vanille font un miroir | 
 L'inxterne parles du signe astrologique suivant Gémeaux |
